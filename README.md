@@ -1,8 +1,8 @@
 <p align="center">
-<img width="500" alt="Untitled327_20260521091415" src="https://github.com/user-attachments/assets/b5549f83-faf2-4cd6-84fa-8416676417d7" />
+<img width="500" alt="download (4)" src="https://github.com/user-attachments/assets/8286b41d-9860-4a79-866b-ad3e68df3c6e" />
 </p>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=2B2724&style=flat" alt="fragileflaw" />
+<img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=182123&style=flat" alt="fragileflaw" />
 </p>
 <p align="center">
   <I><sub><i>❝ ‎ 𝓘 don't care what they say</I></sub>
@@ -21,5 +21,5 @@
 
 
 
-<p align="center"><I><sub><i>cred to @661ave on tumblr.</p></I></sub>
+<p align="center"><I><sub><i>ac to @quozacheese on tumblr.</p></I></sub>
 
