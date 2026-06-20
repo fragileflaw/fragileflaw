@@ -1,6 +1,5 @@
 <p align="center">
-<img width="500" alt="Untitled339_20260621002755" src="https://github.com/user-attachments/assets/8b3fecd6-f35c-40b7-93a2-3ca6ae9cb0c0"
- />
+<img width="500" alt="Untitled342_20260621011218" src="https://github.com/user-attachments/assets/d9504736-243d-40fb-89da-328a1c71dd75" />
 </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=78453B&style=flat" alt="fragileflaw" />
