@@ -6,5 +6,4 @@
 <img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=78453B&style=flat" alt="fragileflaw" />
 </p>
 
-<p align="center"><I><sub><i>ac to @quozacheese on tumblr.</p></I></sub>
-
+<p align="center"><I><sub><i>graphics made by me　𓈒　ac to @quozacheese on tumblr.</p></I></sub>
