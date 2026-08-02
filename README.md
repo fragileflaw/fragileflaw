@@ -1,8 +1,8 @@
 <p align="center">
-<img width="500" alt="Untitled342_20260621011218" src="https://github.com/user-attachments/assets/d9504736-243d-40fb-89da-328a1c71dd75" />
+<img width="800" alt="oie_303622voXsfntp (1)" src="https://github.com/user-attachments/assets/27fb11bf-dd79-473d-8038-33a1179b2cca" />
 </p>
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=78453B&style=flat" alt="fragileflaw" />
 </p>
 
-<p align="center"><I><sub><i>ac to @quozacheese on tumblr.</p></I></sub>
+<p align="center"><I><sub><i>❛❛ Hoy te toca perder. ❞</p></I></sub>
