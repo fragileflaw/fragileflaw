@@ -5,4 +5,4 @@
 <img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=78453B&style=flat" alt="fragileflaw" />
 </p>
 
-<p align="center"><I><sub><i>❛❛ Hoy te toca perder. ❞</p></I></sub>
+<p align="center"><I><sub><i>❛❛ And I deal in the grimy leftovers. ❞</p></I></sub>
