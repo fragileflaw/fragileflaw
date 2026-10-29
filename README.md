@@ -21,6 +21,14 @@
     always offtb , my attention span is smthin so pls whisp<br>
     c*h always enc! <br>
     always ask 4 socials <br>
+    </I></sub>
+    </details>
+  <details>
+  <summary>$\color{#B3B9BF}{\texttt{ int }}$</summary>
+    <I><sub> 
+    same int + fandoms <br>
+    moon knight enjoyers <br>
+    marvel rivals players (pls carry me , maybe) <br>
     I really love oscar isaac characters + movies , pls pls int w me <br>
     ${\color{#963743}\text{jake yume , dbls feel free to int!}}$ <br>
     ${\color{#B3B9BF}\text{(but pls don't make it a competition, drains me sm)}}$ <br>
