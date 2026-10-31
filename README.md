@@ -43,9 +43,9 @@
     </details>
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ awards }}$</summary>
- <a href="https://github.com/ponytowns-rewards"> 𝘱t's 𝖬r. Knight.ᐟ </a>
- <a href="https://github.com/pt-everypony"> 𝘱t's Zodiac.ᐟ </a>
- <a href="https://github.com/pt-everypony"> 𝘱t's Jake Lockley's yume.ᐟ </a>
+ <a href="https://github.com/ponytowns-rewards"> 𝘱t's 𝖬r. Knight.ᐟ </a><br>
+ <a href="https://github.com/pt-everypony"> 𝘱t's Zodiac.ᐟ </a><br>
+ <a href="https://github.com/pt-everypony"> 𝘱t's Jake Lockley's yume.ᐟ </a><br>
     </details>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zfhptu5r65gjfkdlo47466to6m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=bcc1c6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
