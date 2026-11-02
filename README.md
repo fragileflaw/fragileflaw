@@ -17,12 +17,15 @@
 
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ byi }}$</summary>
-    <I><sub> 𝙨elective mute , may not up to talk much;<br> 
-    always offtb , my attention span is smthin so pls whisp<br>
+    <I><sub> 𝙨elective mute , non-verbal <br> 
+    always offtb so please w2i , my attention span is smthin so pls do <br>
+    very oblivious + bad comprehension <br>
+    idm shipping + matching js don't be weirddd abt it <br>
     c*h always enc! <br>
     always ask 4 socials <br>
     </I></sub>
     </details>
+      
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ int }}$</summary>
     <I><sub> 
@@ -35,13 +38,16 @@
     </I></sub>
     </details>
       <details>
+        
   <summary>$\color{#B3B9BF}{\texttt{ dni }}$</summary>
       <I><sub>- 13<br>
       basic DNI<br>
+      unsettling topics that 'm not comfy with <br>
       weirdos , yuck<br>
       if I fit ur dni!<br></I></sub>
     </details>
   <details>
+    
   <summary>$\color{#B3B9BF}{\texttt{ awards }}$</summary>
  <a href="https://github.com/ponytowns-rewards"> 𝘱t's 𝖬r. Knight.ᐟ </a><br>
  <a href="https://github.com/pt-everypony"> 𝘱t's Zodiac.ᐟ </a><br>
