@@ -32,7 +32,7 @@
     same int + fandoms <br>
     moon knight enjoyers <br>
     marvel rivals players (pls carry me , maybe) <br>
-    I really love oscar isaac characters + movies , pls pls int w me <br>
+    i really love oscar isaac characters + movies , pls pls int w me <br>
     ${\color{#963743}\text{jake yume , dbls feel free to int!}}$ <br>
     ${\color{#B3B9BF}\text{(but pls don't make it a competition, drains me sm)}}$ <br>
     </I></sub>
@@ -40,11 +40,12 @@
       <details>
         
   <summary>$\color{#B3B9BF}{\texttt{ dni }}$</summary>
-      <I><sub>- 13<br>
-      basic DNI<br>
+      <I><sub>- 13 <br>
+      basic DNI <br>
       unsettling topics that 'm not comfy with <br>
-      weirdos , yuck<br>
-      if I fit ur dni!<br></I></sub>
+      weirdos , yuck <br>
+      if I fit ur dni! <br></I></sub>
+      i block + hide freely <br>
     </details>
   <details>
     
