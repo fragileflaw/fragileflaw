@@ -44,7 +44,7 @@
       basic DNI <br>
       unsettling topics that 'm not comfy with <br>
       weirdos , yuck <br>
-      if I fit ur dni! <br></I></sub>
+      if I fit ur dni! <br>
       i block + hide freely <br>
       </I></sub>
     </details>
