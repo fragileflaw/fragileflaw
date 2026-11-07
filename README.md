@@ -89,8 +89,8 @@
 <img width="240" alt="image" src="https://github.com/user-attachments/assets/50cbdb54-c6a5-45c2-bffb-ec97f123602a" />
 
 </div>
-
 </details>
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zfhptu5r65gjfkdlo47466to6m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=bcc1c6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p align="center"><I><sub><i> $\color{#963743}\text{❛❛ And 𝙄 𝖽𝖾𝖺𝗅 𝗂𝗇 𝓉𝒽𝑒 𝗀𝗋𝗂𝗆𝗒 𝓁e̲f̲t̲o̲v̲e̲r̲s̲. ❞}$ </p></I></sub>  
    </td>
