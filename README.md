@@ -12,8 +12,11 @@
 ㅤ $${\color{#A8ADAC}ᨦ ෆ ᨩ  }$$ $${\color{#717179}  ash}$$ $${\color{#B3B9BF}(er) }$$ , $${\color{#606167}  ether}$$
 
 ㅤ $${\color{#6C5353} they }$$⠀⠀ $${\color{#A8ADAC} ; }$$⠀⠀ $${\color{#5A2828}infp⠀4w5 }$$ $${\color{#64646F}      𓈒     21}$$
+<br><I><sub>
 
+[新book](https://sweetestrum.atabook.org) $${\color{#A8ADAC} ❤︎  }$$[guns](https://guns.lol/fragileflaws)
 
+</I></sub>
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ ɓყเ }}$</summary>
     <I><sub> $${\color{#A8ADAC}ㅤmostlyㅤ𝙨electiveㅤmuteㅤ,ㅤnon-verbal  }$$ 
