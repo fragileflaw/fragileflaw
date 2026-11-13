@@ -9,44 +9,61 @@
 
 <div align="center"><img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=5b292b&style=flat" alt="fragileflaw"></img></a>
 <p align="center">
-ㅤ $${\color{#5b292b} 　ᶻ 𝗓 𐰁  }$$ $${\color{#5b292b}  ash}$$ $${\color{#B3B9BF}(er) }$$ , $${\color{#5b292b}  ether}$$
+ㅤ $${\color{#A8ADAC}ᨦ ෆ ᨩ  }$$ $${\color{#717179}  ash}$$ $${\color{#B3B9BF}(er) }$$ , $${\color{#606167}  ether}$$
 
-ㅤ $${\color{#B3B9BF} they }$$ $${\color{#B9BEC6} / }$$ $${\color{#5b292b} them }$$⠀⠀;⠀⠀ $${\color{#963743}21}$$ $${\color{#963743}infp-t 4w5}$$
+ㅤ $${\color{#6C5353} they }$$⠀⠀ $${\color{#A8ADAC} ; }$$⠀⠀ $${\color{#5A2828}infp⠀4w5 }$$ $${\color{#64646F}      𓈒     21}$$
 
 
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ ɓყเ }}$</summary>
-    <I><sub> 𝙨elective mute , non-verbal <br> 
-    always offtb + my attention span is smthin so pls whisp , always up to chat! <br>
-    very oblivious + bad comprehension TT <br>
-    idm shipping + matching js don't be weirddd abt it <br>
-    c*h + int always enc! <br>
-    always ask 4 socials <br>
+    <I><sub> $${\color{#A8ADAC}ㅤmostlyㅤ𝙨electiveㅤmuteㅤ,ㅤnon-verbal  }$$ 
+      <br> 
+    $${\color{#606167}ㅤalwaysㅤofftbㅤbutㅤupㅤtoㅤchat!}$$ 
+      <br>
+    $${\color{#A8ADAC}ㅤveryㅤobliviousㅤ+ㅤbadㅤcomprehensionㅤTT}$$
+      <br>
+    $${\color{#606167}ㅤidmㅤshippingㅤ+ㅤmatchingㅤjsㅤdon'tㅤbeㅤweirdddㅤabtㅤit}$$ 
+      <br>
+    $${\color{#A8ADAC}ㅤc*hㅤ+ㅤintㅤalwaysㅤenc!}$$ 
+      <br>
+    $${\color{#606167}ㅤalwaysㅤaskㅤ4ㅤsocials}$$ 
+      <br>
     </I></sub>
     </details>
       
   <details>
   <summary>$\color{#B3B9BF}{\texttt{ ιηт }}$</summary>
     <I><sub> 
-    same int + fandoms <br>
-    moon knight enjoyers <br>
-    marvel rivals players (pls carry me , maybe) <br>
-    i really love oscar isaac characters + shows , pls pls int w me >.< <br>
-    ${\color{#963743}\text{jake yume , dbls feel free to int!}}$ <br>
-    ${\color{#B3B9BF}\text{(but pls don't make it a competition, drains me sm)}}$ <br>
+    $${\color{#A8ADAC}ㅤsameㅤintㅤ+ㅤfandoms}$$ 
+      <br>
+    $${\color{#606167}ㅤmoon knight enjoyers }$$
+      <br>
+    $${\color{#A8ADAC}ㅤmarvelㅤrivalsㅤplayersㅤ(plsㅤcarry meㅤ,ㅤmaybe)}$$ 
+      <br>
+    $${\color{#606167}ㅤreallyㅤloveㅤoscarㅤisaacㅤcharactersㅤ+ㅤshowsㅤ,ㅤplsㅤplsㅤintㅤwㅤme >.<}$$ 
+      <br>
+    ${\color{#963743}\text{jake yumeㅤ,ㅤdblsㅤfeelㅤfreeㅤtoㅤint!}}$ 
+      <br>
+    ${\color{#B3B9BF}\text{(but pls don't make it a competition, drains me sm)}}$ 
+      <br>
     </I></sub>
     </details>
       <details>
 
         
   <summary>$\color{#B3B9BF}{\texttt{ ∂ηι }}$</summary>
-      <I><sub>- 15 <br>
-      basic DNI <br>
-      ICE + AI + Pax Silica supporters, you are the problem <br>
-      unsettling topics that 'm not comfy with <br>
-      weirdos , yuck <br>
-      if I fit ur dni! <br>
-      i block + hide freely <br>
+      <I><sub>$${\color{#A8ADAC}ㅤ-ㅤ15}$$
+        <br>
+      $${\color{#606167}ㅤbasicㅤDNI}$$
+        <br>
+      $${\color{#A8ADAC}ㅤICEㅤ+ㅤAIㅤ+ㅤPaxㅤSilicaㅤsupporters}$$
+        <br>
+      $${\color{#606167}ㅤweirdosㅤ,ㅤyuck}$$
+        <br>
+      $${\color{#A8ADAC}ㅤifㅤIㅤfitㅤurㅤdni!}$$
+        <br>
+      $${\color{#606167}ㅤiㅤblockㅤ+ㅤhideㅤfreely}$$
+        <br>
       </I></sub>
     </details>
   
