@@ -9,9 +9,9 @@
 
 <div align="center"><img src="https://komarev.com/ghpvc/?username=adoresyu&label=⌖%20&color=5b292b&style=flat" alt="fragileflaw"></img></a>
 <p align="center">
-ㅤ $${\color{#5b292b} ash}$$ $${\color{#B3B9BF}(er) }$$ , $${\color{#5b292b}  luv}$$
+ㅤ $${\color{#5b292b} 　ᶻ 𝗓 𐰁  }$$ $${\color{#5b292b}  ash}$$ $${\color{#B3B9BF}(er) }$$ , $${\color{#5b292b}  ether}$$
 
-ㅤ $${\color{#B3B9BF} they }$$ $${\color{#B9BEC6} / }$$ $${\color{#5b292b} them }$$⠀⠀;⠀⠀ $${\color{#963743}21}$$
+ㅤ $${\color{#B3B9BF} they }$$ $${\color{#B9BEC6} / }$$ $${\color{#5b292b} them }$$⠀⠀;⠀⠀ $${\color{#963743}21}$$ $${\color{#963743}infp-t 4w5}$$
 
 
   <details>
@@ -31,7 +31,7 @@
     same int + fandoms <br>
     moon knight enjoyers <br>
     marvel rivals players (pls carry me , maybe) <br>
-    i really love oscar isaac characters + shows , pls pls int w me <br>
+    i really love oscar isaac characters + shows , pls pls int w me >.< <br>
     ${\color{#963743}\text{jake yume , dbls feel free to int!}}$ <br>
     ${\color{#B3B9BF}\text{(but pls don't make it a competition, drains me sm)}}$ <br>
     </I></sub>
@@ -40,7 +40,7 @@
 
         
   <summary>$\color{#B3B9BF}{\texttt{ ∂ηι }}$</summary>
-      <I><sub>- 13 <br>
+      <I><sub>- 15 <br>
       basic DNI <br>
       ICE + AI + Pax Silica supporters, you are the problem <br>
       unsettling topics that 'm not comfy with <br>
