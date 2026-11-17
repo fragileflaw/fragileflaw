@@ -17,7 +17,7 @@
 
 <img width="116" alt="Untitled391_20261118022032" src="https://github.com/user-attachments/assets/1d41dd49-49e9-43c2-a4f2-262dd14316cb" />
 
-[新book](https://sweetestrum.atabook.org) $${\color{#A8ADAC} ❤︎  }$$[guns](https://guns.lol/fragileflaws)
+[新book](https://sweetestrum.atabook.org) $${\color{#963743} ❤︎  }$$[guns](https://guns.lol/fragileflaws)
 
 </I></sub>
   <details>
@@ -42,7 +42,7 @@
     <I><sub> 
     $${\color{#A8ADAC}ㅤsameㅤintㅤ+ㅤfandoms}$$ 
       <br>
-    $${\color{#606167}ㅤmoon knight enjoyers }$$
+    $${\color{#606167}ㅤmoonㅤknightㅤenjoyers }$$
       <br>
     $${\color{#A8ADAC}ㅤmarvelㅤrivalsㅤplayersㅤ(plsㅤcarry meㅤ,ㅤmaybe)}$$ 
       <br>
