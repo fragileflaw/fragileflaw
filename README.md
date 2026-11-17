@@ -14,6 +14,8 @@
 ㅤ $${\color{#6C5353} they }$$⠀⠀ $${\color{#A8ADAC} ; }$$⠀⠀ $${\color{#5A2828}infp⠀4w5 }$$ $${\color{#64646F}      𓈒     21}$$
 <br><I><sub>
 
+<img width="256" alt="Untitled391_20261118022032" src="https://github.com/user-attachments/assets/06c45178-3bcb-4165-a1ba-543786c9988f" />
+
 [新book](https://sweetestrum.atabook.org) $${\color{#A8ADAC} ❤︎  }$$[guns](https://guns.lol/fragileflaws)
 
 </I></sub>
