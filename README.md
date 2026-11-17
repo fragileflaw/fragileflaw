@@ -15,13 +15,13 @@
 ㅤ $${\color{#6C5353} they }$$⠀⠀ $${\color{#A8ADAC} ; }$$⠀⠀ $${\color{#5A2828}infp⠀4w5 }$$ $${\color{#64646F}      𓈒     21}$$
 <br><I><sub>
 
-<img width="136" alt="Untitled391_20261118022032" src="https://github.com/user-attachments/assets/1d41dd49-49e9-43c2-a4f2-262dd14316cb" />
+<img width="116" alt="Untitled391_20261118022032" src="https://github.com/user-attachments/assets/1d41dd49-49e9-43c2-a4f2-262dd14316cb" />
 
 [新book](https://sweetestrum.atabook.org) $${\color{#A8ADAC} ❤︎  }$$[guns](https://guns.lol/fragileflaws)
 
 </I></sub>
   <details>
-  <summary>$\color{#B3B9BF}{\texttt{ ɓყเ }}$</summary>
+  <summary>$\color{#6C5353}{\texttt{ ɓყเ }}$</summary>
     <I><sub> $${\color{#A8ADAC}ㅤmostlyㅤ𝙨electiveㅤmuteㅤ,ㅤnon-verbal  }$$ 
       <br> 
     $${\color{#606167}ㅤalwaysㅤofftbㅤbutㅤupㅤtoㅤchat!}$$ 
@@ -38,7 +38,7 @@
     </details>
       
   <details>
-  <summary>$\color{#B3B9BF}{\texttt{ ιηт }}$</summary>
+  <summary>$\color{#5A2828}{\texttt{ ιηт }}$</summary>
     <I><sub> 
     $${\color{#A8ADAC}ㅤsameㅤintㅤ+ㅤfandoms}$$ 
       <br>
@@ -57,7 +57,7 @@
       <details>
 
         
-  <summary>$\color{#B3B9BF}{\texttt{ ∂ηι }}$</summary>
+  <summary>$\color{#6C5353}{\texttt{ ∂ηι }}$</summary>
       <I><sub>$${\color{#A8ADAC}ㅤ-ㅤ15}$$
         <br>
       $${\color{#606167}ㅤbasicㅤDNI}$$
@@ -74,7 +74,7 @@
     </details>
   
   <details>
-  <summary>$\color{#B3B9BF}{\texttt{ αωαя∂ѕ }}$</summary>
+  <summary>$\color{#5A2828}{\texttt{ αωαя∂ѕ }}$</summary>
  <a href="https://github.com/ponytowns-rewards"> 𝘱t's 𝖬r. Knight.ᐟ </a><br>
  <a href="https://github.com/pt-everypony"> 𝘱t's Zodiac.ᐟ </a><br>
  <a href="https://github.com/pt-everypony"> 𝘱t's Jake Lockley's yume.ᐟ </a><br>
