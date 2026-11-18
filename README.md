@@ -58,7 +58,7 @@
 
         
   <summary>$\color{#6C5353}{\texttt{ ∂ηι }}$</summary>
-      <I><sub>$${\color{#A8ADAC}ㅤ-ㅤ15}$$
+      <I><sub>$${\color{#A8ADAC}ㅤ-ㅤ14ㅤ,ㅤorㅤjsㅤiwec}$$
         <br>
       $${\color{#606167}ㅤbasicㅤDNI}$$
         <br>
